@@ -6,7 +6,7 @@ It's interesting to drawing parallels between machinery and Buddhism. Machinery 
 
 Furthermore, steampunk's association with the industrial revolution aligns with the idea that religions, including Buddhism, undergo transformations in the modern era. Just as Christianity has been transformed in Western societies, Buddhism has also been influenced and transformed among Asian youth in this cyber age. This comparison highlights the evolving nature of religions in response to societal changes and technological advancements.
 
-By combining elements of steampunk with the themes and concepts of Buddhism, you have the opportunity to create a thought-provoking and visually captivating artistic expression that explores the intersection of technology, religion, and cultural evolution.
+By combining elements of steampunk with the themes and concepts of Buddhism, I have the opportunity to create a thought-provoking and visually captivating artistic expression that explores the intersection of technology, religion, and cultural evolution.
 
 ![iPhone 14 Pro - 8](https://github.com/YC-G/uiux/assets/38597041/c304fb6f-6934-480b-832a-c352996bd251)
 
