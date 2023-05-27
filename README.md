@@ -1,6 +1,9 @@
 # uiux
 
-![Frame 5](https://github.com/YC-G/uiux/assets/38597041/67a5083f-9d71-485d-8716-985d5c3715b6)
-<img width="586" alt="Screenshot 2023-05-27 at 6 13 20 AM" src="https://github.com/YC-G/uiux/assets/38597041/93fc5681-399e-4cef-a7f3-5b060c60fb1b">
+![iPhone 14 Pro - 8](https://github.com/YC-G/uiux/assets/38597041/c304fb6f-6934-480b-832a-c352996bd251)
 
 ![image 1](https://github.com/YC-G/uiux/assets/38597041/000360ea-ed14-4e7b-b719-6bbacf6dade1)
+
+![iPhone 14 Pro - 3](https://github.com/YC-G/uiux/assets/38597041/e5aa6e1b-c57c-450b-b473-513ce9b3af33)
+
+![iPhone 14 Pro - 5](https://github.com/YC-G/uiux/assets/38597041/68ae24f6-7cb8-412d-9226-3ec5a9b3498d)
