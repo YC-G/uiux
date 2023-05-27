@@ -1,4 +1,4 @@
-# uiux
+# Diamond Sutra in Steampunk Style
 
 Steampunk's fusion of decorative elegance and steam-powered machinery can indeed create a unique aesthetic that represents the delicate and subtle aspects of Asian religions while also incorporating an anachronistic feel.
 
