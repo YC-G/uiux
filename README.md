@@ -43,3 +43,7 @@ The Spider’s Thread
 "He stopped climbing. 'How can the gossamer carry everyone?' he thought .'This string is mine!' he shouted downwards. 'Let go, all of you! Let go! It's mine!'
 
 "Immediately the thread broke. Kandata and all the others fell back into the hells.
+
+Steampunk
+
+Steampunk fashion is a subgenre of the steampunk movement in science fiction. It is a mixture of the Victorian era's romantic view of science in literature and elements from the Industrial Revolution in Europe during the 1800s. Steampunk fashion consists of clothing, hairstyling, jewellery, body modification and make-up. More modern ideals of steampunk can include t-shirts with a variety of designs or the humble jeans being accessorised with belts and gun holsters. The aesthetics of the fashion are designed with a post-apocalyptic era in mind.
