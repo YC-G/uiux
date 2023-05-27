@@ -2,7 +2,7 @@
 
 Steampunk's fusion of decorative elegance and steam-powered machinery can indeed create a unique aesthetic that represents the delicate and subtle aspects of Asian religions while also incorporating an anachronistic feel.
 
-It's interesting to drawing parallels between machinery and Buddhism. Machinery can symbolize the precision, justice, omniscience, and omnipotence often associated with Buddhism. This connection adds depth and complexity to the representation of Buddhism within the steampunk context.
+It's interesting to draw parallels between machinery and Buddhism. Machinery can symbolize the precision, justice, omniscience, and omnipotence often associated with Buddhism. This connection adds depth and complexity to the representation of Buddhism within the steampunk context.
 
 Furthermore, steampunk's association with the industrial revolution aligns with the idea that religions, including Buddhism, undergo transformations in the modern era. Just as Christianity has been transformed in Western societies, Buddhism has also been influenced and transformed among Asian youth in this cyber age. This comparison highlights the evolving nature of religions in response to societal changes and technological advancements.
 
